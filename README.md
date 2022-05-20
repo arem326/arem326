@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @arem326
-- 👀 I’m interested in mizu
+- 👀 I’m interested in 🍜
 - 🌱 I’m currently learning sap
-- 💞️ I’m looking to collaborate on girl
+- 💞️ I’m looking to collaborate on 🈂
